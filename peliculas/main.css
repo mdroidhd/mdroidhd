@@ -1,0 +1,24 @@
+body{
+    background-color: black;
+    
+}
+li{
+    display: inline;
+    list-style: none;
+    top: 0px;
+    left: -4px;
+    padding-left: 2px;
+
+}
+img{
+    width: 20%;
+    height: 30%;
+    border: white 1px solid;
+    margin: 5px;
+}
+.contenedor{
+    width: auto;
+    height: auto;
+    display: block;
+    margin: 20px;
+}
