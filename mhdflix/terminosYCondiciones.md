@@ -1,0 +1,49 @@
+# Mhdflix
+
+Es posible que esté sujeto a términos y condiciones adicionales que se aplican cuando usa o compra otros servicios de Mhdflix, que Mhdflix le proporcionará en el momento de dicho uso o compra.
+
+## Actualizaciones de nuestros Términos
+
+Podemos cambiar nuestro Servicio y nuestras políticas, y es posible que debamos realizar cambios en estos Términos para que reflejen con precisión nuestro Servicio y nuestras políticas. A menos que la ley exija lo contrario, le notificaremos (por ejemplo, a través de nuestro Servicio) antes de realizar cambios en estos Términos y le daremos la oportunidad de revisarlos antes de que entren en vigencia. Luego, si continúa utilizando el Servicio, estará sujeto a los Términos actualizados. Si no desea aceptar estos o alguno de los Términos actualizados, puede eliminar su cuenta.
+
+## Propiedad intelectual
+
+La plataforma y todo su contenido, características y funcionalidad (que incluyen, entre otros, toda la información, software, texto, pantallas, imágenes, video y audio, y el diseño, selección y disposición de los mismos), son propiedad de Mhdflix, sus licenciantes u otros proveedores de dicho material y están protegidos por España y leyes internacionales de derechos de autor, marcas registradas, patentes, secretos comerciales y otras leyes de propiedad intelectual o derechos de propiedad. El material no puede ser copiado, modificado, reproducido, descargado o distribuido de ninguna manera, en su totalidad o en parte, sin el permiso previo expreso por escrito de Mhdflix, a menos que y excepto que se indique expresamente en estos Términos y Condiciones. Se prohíbe cualquier uso no autorizado del material.
+
+## Acuerdo de Arbitraje
+
+Esta sección se aplica a cualquier disputa, EXCEPTO QUE NO INCLUYE UNA DISPUTA RELACIONADA CON RECLAMOS POR RECURSOS INJUNTIVOS O EQUITATIVOS CON RESPECTO A LA EJECUCIÓN O VALIDEZ DE SUS DERECHOS DE PROPIEDAD INTELECTUAL O DE Mhdflix. El término "disputa" significa cualquier disputa, acción u otra controversia entre usted y Mhdflix en relación con los Servicios o este acuerdo, ya sea en contrato, garantía, agravio, estatuto, regulación, ordenanza o cualquier otra base legal o equitativa. "Disputa" tendrá el significado más amplio posible permitido por la ley.
+
+## Aviso de Disputa
+
+En el caso de una disputa, usted o Mhdflix deben darle al otro un Aviso de Disputa, que es una declaración escrita que establece el nombre, la dirección y la información de contacto de la parte que la proporcionó, los hechos que dieron lugar a la disputa y la reparación solicitada. Debe enviar cualquier Aviso de disputa por correo electrónico a: support@mhdflix.com. Mhdflix le enviará cualquier Aviso de disputa por correo a su dirección si la tenemos, o de otra manera a su dirección de correo electrónico. Usted y Mhdflix intentarán resolver cualquier disputa mediante una negociación informal dentro de los sesenta (60) días a partir de la fecha en que se envíe la Notificación de disputa. Después de sesenta (60) días, usted o Mhdflix pueden comenzar el arbitraje.
+
+## Arbitraje Obligatorio
+
+Si usted y Mhdflix no resuelven ninguna disputa mediante una negociación informal, cualquier otro esfuerzo para resolver la disputa se llevará a cabo exclusivamente mediante arbitraje vinculante como se describe en esta sección. Está renunciando al derecho de litigar (o participar como parte o miembro de la clase) todas las disputas en la corte ante un juez o jurado. La disputa se resolverá mediante arbitraje vinculante de acuerdo con las reglas de arbitraje comercial de la Asociación Americana de Arbitraje. Cualquiera de las partes puede buscar medidas cautelares provisionales o preliminares de cualquier tribunal de jurisdicción competente, según sea necesario para proteger los derechos o la propiedad de las partes en espera de la finalización del arbitraje. Todos y cada uno de los costos, honorarios y gastos legales, contables y de otro tipo en los que incurra la parte ganadora correrán a cargo de la parte no ganadora.
+
+## Envíos y Privacidad
+
+En el caso de que envíe o publique ideas, sugerencias creativas, diseños, fotografías, información, anuncios, datos o propuestas, incluidas ideas para productos, servicios, características, tecnologías o promociones nuevos o mejorados, acepta expresamente que dichos envíos se realizarán automáticamente. será tratado como no confidencial y no propietario y se convertirá en propiedad exclusiva de Mhdflix sin ningún tipo de compensación o crédito para usted. Mhdflix y sus afiliados no tendrán obligaciones con respecto a dichos envíos o publicaciones y pueden usar las ideas contenidas en dichos envíos o publicaciones para cualquier propósito en cualquier medio a perpetuidad, incluyendo, pero no limitado a desarrollo, fabricación y comercialización de productos y servicios utilizando tales ideas.
+
+## Promociones
+
+Mhdflix puede, de vez en cuando, incluir concursos, promociones, sorteos u otras actividades ("Promociones") que requieren que envíe material o información sobre usted. Tenga en cuenta que todas las promociones pueden regirse por reglas independientes que pueden contener ciertos requisitos de elegibilidad, como restricciones de edad y ubicación geográfica. Usted es responsable de leer todas las reglas de Promociones para determinar si es elegible para participar o no. Si participa en alguna Promoción, acepta cumplir con todas las Reglas de promociones. Es posible que se apliquen términos y condiciones adicionales a las compras de bienes o servicios a través de los Servicios, cuyos términos y condiciones forman parte de este Acuerdo mediante esta referencia.
+
+## Errores Tipográficos
+
+En el caso de que un producto y / o servicio se enumere a un precio incorrecto o con información incorrecta debido a un error tipográfico, tendremos el derecho de rechazar o cancelar cualquier pedido realizado para el producto y / o servicio enumerado al precio incorrecto. Tendremos derecho a rechazar o cancelar cualquier pedido, ya sea que se haya confirmado o no y se haya cargado a su tarjeta de crédito. Si su tarjeta de crédito ya ha sido cargada por la compra y su pedido es cancelado, emitiremos inmediatamente un crédito a su cuenta de tarjeta de crédito u otra cuenta de pago por el monto del cargo.
+
+## Diverso
+
+Si por alguna razón un tribunal de jurisdicción competente determina que alguna disposición o parte de estos Términos y condiciones no se puede hacer cumplir, el resto de estos Términos y condiciones continuará en pleno vigor y efecto. Cualquier renuncia a cualquier disposición de estos Términos y condiciones será efectiva solo si está por escrito y firmada por un representante autorizado de Mhdflix. Mhdflix tendrá derecho a una medida cautelar u otra compensación equitativa (sin la obligación de depositar ninguna fianza o garantía) en caso de incumplimiento anticipado por su parte. Mhdflix opera y controla el Servicio Mhdflix desde sus oficinas en España. El Servicio no está destinado a ser distribuido ni utilizado por ninguna persona o entidad en ninguna jurisdicción o país donde dicha distribución o uso sea contrario a la ley o regulación. En consecuencia, las personas que eligen acceder al Servicio Mhdflix desde otras ubicaciones lo hacen por iniciativa propia y son las únicas responsables del cumplimiento de las leyes locales, en la medida en que las leyes locales sean aplicables. Estos Términos y condiciones (que incluyen e incorporan la Política de privacidad de Mhdflix) contienen el entendimiento completo y reemplazan todos los entendimientos previos entre usted y Mhdflix con respecto a su tema, y usted no puede cambiarlos ni modificarlos. Los títulos de las secciones que se utilizan en este Acuerdo son solo por conveniencia y no se les dará ninguna importancia legal.
+
+## Descargo de Responsabilidad
+
+Mhdflix no es responsable de ningún contenido, código o cualquier otra imprecisión. Mhdflix no ofrece garantías. En ningún caso Mhdflix será responsable de ningún daño especial, directo, indirecto, consecuente o incidental o de cualquier daño, ya sea en una acción contractual, negligencia u otro agravio, que surja de o en conexión con el uso del Servicio o el contenido del Servicio. Mhdflix se reserva el derecho de realizar adiciones, eliminaciones o modificaciones al contenido del Servicio en cualquier momento sin previo aviso. El Servicio Mhdflix y su contenido se proporcionan "tal cual" y "según esté disponible" sin ninguna garantía o representación de ningún tipo, ya sea expresa o implícita. Mhdflix es un distribuidor y no un editor del contenido proporcionado por terceros; como tal, Mhdflix no ejerce ningún control editorial sobre dicho contenido y no ofrece ninguna garantía o representación en cuanto a la precisión, confiabilidad o vigencia de cualquier información, contenido, servicio o mercancía proporcionada o accesible a través del Servicio Mhdflix. Sin limitar lo anterior, Mhdflix renuncia específicamente a todas las garantías y representaciones en cualquier contenido transmitido en conexión con el Servicio Mhdflix o en sitios que pueden aparecer como enlaces en el Servicio Mhdflix, o en los productos proporcionados como parte o en relación con el Servicio Mhdflix, incluidas, entre otras, las garantías de comerciabilidad, idoneidad para un propósito particular o no infracción de derechos de terceros. Ningún consejo oral o información escrita proporcionada por Mhdflix o cualquiera de sus afiliados, empleados, funcionarios, directores, agentes o similares creará una garantía. La información sobre precios y disponibilidad está sujeta a cambios sin previo aviso. Sin limitar lo anterior, Mhdflix no garantiza que el Servicio de Mhdflix sea ininterrumpido, sin corrupción, oportuno o sin errores.
+
+## Contáctenos
+
+No dude en contactarnos si tiene alguna pregunta.
+
+- A través de correo electrónico: support@mhdflix.com
